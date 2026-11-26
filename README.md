@@ -4,8 +4,6 @@
 
 <br />
 
-[oryph.com](https://oryph.com) &nbsp;·&nbsp; [vdlsm.org](https://vdlsm.org) &nbsp;·&nbsp; [cnw.bio](https://cnw.bio)
-
 </div>
 
 <br />
